@@ -82,7 +82,7 @@
 I'm always open to discussing data, analytics, and new opportunities. Feel free to reach out!
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/krishna-dheeraj-janaswamy-3080b735/)
-- 📧 Email: dheerajjanaswamy@gmail.com
+- 📧 Email:janaswamykrishna@gmail.com
 - 📍 Hyderabad, Telangana, India
 
 ---
